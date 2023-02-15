@@ -6,11 +6,14 @@ Basic Info ::
 
 ★ My name is Kazu/Bliss/Blissful
       but friends call me Mai/Sasha
+
 ★ Birthday June 2nd. 
       Turning 20 this year! (02.06.23)
+
 ★ I have *TC aka Touch Comfort!* 
       You can boop, hug, cuddle but please no kissing 
       (especially if I don't know you 囧)
+
 ★ I FULLY support TT/TD people!!!
 
 **🚫 NOT LOOKING FOR A RELATIONSHIP 🚫**
@@ -49,32 +52,53 @@ Say different things!
 
 **DNI CRITERIA**
 (Info marked with 🚫 is just no. I'm hiding permanently)
+
 (Info marked with ❕ is 50/50. Depending on the person)
+
 **The more the emoji, the most likely I'll perma. Hide
 
 M@PS, ZOOPH1LES, P3DOS, H0MOPHOB1C, R@CIST, TRANSPHOBIC, ETC 🚫🚫🚫🚫🚫🚫🚫
+
 —Void Skins, Copycats 🚫🚫🚫🚫
+
 Roleplayers, Emo skins, -16 / 25+ ❕❕
+
 —Reality Checkers, "self dx is not real" 🚫🚫🚫🚫
+
 Proshippers, Force-shippers 🚫🚫🚫🚫
+
 —People that says TT/TD is bullshit 🚫🚫🚫🚫
+
 People with (single/taken) in their name ❕❕❕❕
+
 —Jschlatt and Meowbahh supporters 🚫🚫🚫🚫🚫
+
 Deltarune people ❕❕❕
+
 —Spoilers on purpose 🚫🚫🚫
+
 Identity thieves 🚫🚫🚫🚫🚫
 
 ————————————————————— ★+★ —————————————————————
 
 **My INTERESTS**
+
 (The more hearts -> the more interest)
+
 ★ Pony Town ❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️ (10)
+
 ★ Genshin Impact ❤️❤️❤️❤️❤️❤️ (6)
+
 ★ Minecraft ❤️❤️❤️❤️❤️❤️ (6)
+
 ★ MCYT ❤️❤️❤️❤️❤️❤️ (6)
+
 ★ Undertale ❤️❤️❤️ (3)
+
 ★ Deltarune ❤️ (1)
+
 ★ My Little Pony (G4 only) ❤️❤️❤️❤️ (4)
+
 ★ Animal Crossing Games ❤️❤️❤️❤️❤️ (5)
 
 ————————————————————— ★+★ —————————————————————
